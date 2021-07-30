@@ -1,5 +1,5 @@
 ### Hi there 👋
-I'm [Prabhu Kiran konda](https://www.github.com/Prabhukiran8790)
+I'm [Prabhu Kiran konda](https://www.github.com/PrabhukiranKonda)
 
 # About Me
 
